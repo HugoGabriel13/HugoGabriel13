@@ -1,5 +1,5 @@
 - Hi, I’m HugoGabriel
-- I’m interested in ...
+- I’m interested in fintech and the overall intersection of finance and technology
 - How to reach me hugo.gr1311@gmail.com
 - www.linkedin.com/in/hugoagabriel
 
